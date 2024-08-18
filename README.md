@@ -2,4 +2,4 @@
 
 Студент:
 
-Игорь Батомункуев (Igor Batomunkuev)
+Igor Batomunkuev ( Игорь Батомункуев )
